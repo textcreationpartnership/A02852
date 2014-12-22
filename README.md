@@ -35,17 +35,25 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Dauids teares by Sr. John Hayward ...Hayward, John, Sir, 1564?-1627.1623Approx. 476 KB of XML-encode
+FLY FROM EVEL DOE GOOD
+1. TO THE READER.
+HOM. Il.〈 in non-Latin alphabet 〉〈 in non-Latin alphabet 〉〈 in non-Latin alphabet 〉〈 in non-Latin al
 #####Body#####
+
+1. PSALME VI.
 VERS. 1.O LORD rebuke me not in thy wrath, neither chastise me in thy displeasure.1 EVery sinne is iVERS. II.Haue mercy vpon mee O LORD, for I am weake: heale me LORD for my bones are troubled.1 THe fVERS. III.My soule is also sore troubled; but LORD how long wilt thou delay.1 THE torments of the soVERS. IIII.Turne thee, O LORD, and deliuer my soule: Oh saue me for thy mercies sake.1 A Prayer.2 ThVERSE. V.For in death no man remembreth thee: and who will giue thee thankes in the pit?THE wisedomeVERS. VI.I am weary of my groning, euery night wash I my bed, and water my couch with my teares.1. AVERS. VII.My beauty is gone for very trouble: and worne away because of all mine enemies.1 INSVLTINGVERS. VIII.Away from mee all yee that worke vanity: for the LORD hath heard the voice of my weeping.VERS. IX.The LORD hath heard my petition: the LORD will receiue my prayer.1 HOW easie GOD is to hearVERS. X.All mine enemies shall be confounded and sore vexed: they shall be turned backe, and put to 
-1. A SVMMARY PRAYER.
+    _ A SVMMARY PRAYER.
+
+1. PSALME XXXII.
 VERS. I.Blessed is he whose vnrighteousnesse is forgiuen: and whose sinne is couered.1 RIches, honouVERS. II.Blessed is the man to whom the Lord imputes no sinne; and in whose spirit there is no guileVERS. III.Whilest I helde my tongue, my bones consumed through my dayly complayning.1. WE cannot be VERS. IIII.For thy hand is heauy vpon me day and night: and my moisture is like the drought in SummeVERSE. V.I will acknowledge my sinne vnto thee: and mine vnrighteousnesse haue I not hid.1 The seconVERS. VI.I said, I will confesse my sinnes vnto the LORD: and so thou forgauest the wickednesse of mVERS. VII.For this shall euery one that is godly make his prayer vnto thee in a time when thou mayesVERS. IIII.Thou art a place to hide mee in, thou shalt preserue me from trouble: thou shalt compasseVERS. IX.I will informe thee, and teach thee in the way wherein thou shalt goe; and I will guide theVERS. X.Bee yee not like to horse and mule, which haue no vnderstanding: whose mouthes must be holdeVERS. XI.Great plagues remaine for the vngodly: but who so putteth his trust in the LORD, mercy embrVERS. XII.Be glad, O ye righteous, and reioyce in the LORD: and be ioyfull all ye that are true of h
-1. A SVMMARY PRAIER.
+    _ A SVMMARY PRAIER.
+
+1. PSALME C. XXX.
 VERS. I.Out of the deepe haue I called vnto thee, O LORD: LORD heare my voice.1 THE depth of sinne.2VERS. II.Oh let thine eares consider well the voyce of my complaint.1 INgemination of our prayers ofVERS. III.If thou LORD wilt bee extreame to marke what is done amisse: O LORD, who may abide it?1. GVERSE IIII.For there is mercy with thee: therefore shalt thou be feared.1 THe greatnesse of GODS merVERS. V.I looke for the LORD, my soule doth wait for him: in his word is my trust.1 THe hungry desirVERS. VI.My soule flieth to the LORD before the morning watch, I say before the morning watch.1 TWO VERS. VII.O Israel trust in the LORD, for with the LORD there is mercie, and with him is plenteous rVERS. VIII.And hee shall redeeme Israel from all his sinnes.1 A contemplation of GOD in his diuine M
-1. A SVMMARY PRAYER.
+    _ A SVMMARY PRAYER.
 
 #####Back#####
-Dauids teares by Sr. John Hayward ...Hayward, John, Sir, 1564?-1627.1623Approx. 476 KB of XML-encode
+LONDON, ¶ Printed by IOHN BILL. M. DC. XXIII.
 **Types of content**
 
   * There are 12 **verse** lines!
